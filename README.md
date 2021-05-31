@@ -9,6 +9,9 @@
 📫 How to reach me throught
 
 ➜**Intagram** 
+
 ➜**My TechnicalBlog**
+
 ➜**Twitter**
+
 ➜**Gmail**
